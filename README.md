@@ -7,5 +7,5 @@
 - 🦭 Fun fact: Seals slap their own abdomens while in the water to send *underwater acoustic signals* to eachother!
 
 ### Reach Me:
-- Email: LadderSafety00@gmail.com
+- Email: chiassondev.myotonic@gmail.com
 - Discord: RenardeRoux_
