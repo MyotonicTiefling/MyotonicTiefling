@@ -8,4 +8,3 @@
 
 ### Reach Me:
 - Email: chiassondev.myotonic@gmail.com
-- Discord: RenardeRoux_
